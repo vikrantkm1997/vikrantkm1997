@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Java, C++, DS**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://wwww.linkedin.com/in/vkmh</h3>
 <p align="left">
 </p>
 
